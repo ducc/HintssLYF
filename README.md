@@ -1,2 +1,2 @@
-# HintsLYF
-hontsses lyf in one copypasta
+I sexually Identify as hintss. Ever since I was a boy I dreamed of loling over the chats dropping xDs on lol mongers. People say to me that a person being hintss is Impossible and I’m fucking retarded but I don’t care, I’m beautiful. I’m having a plastic surgeon install a "lol" module to my voice box. From now on I want you guys to call me "hontss" and respect my lol factor. If you can't accept that, you are a hints-aphobe that can't understand the funniness of the world.
+Thank you for being so understanding.
